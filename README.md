@@ -69,7 +69,7 @@
 
 [33 - William delivers the food to Pauline](https://htmlpreview.github.io/?https://github.com/AstralShard/masksInterludes/blob/main/InterludeFiles/33%20-%20William%20delivers%20the%20food%20to%20Pauline.html)
 
-[34 - (UNOFFICIAL) Kara meets Pass for the first time](https://htmlpreview.github.io/?https://github.com/AstralShard/masksInterludes/blob/main/InterludeFiles/34%20-%20%5BUNOFFICIAL%5D%20Kara%20meets%20Pass%20for%20the%20first%20time.pdf)
+[34 - (UNOFFICIAL) Kara meets Pass for the first time](https://github.com/AstralShard/masksInterludes/blob/main/InterludeFiles/34%20-%20%5BUNOFFICIAL%5D%20Kara%20meets%20Pass%20for%20the%20first%20time.pdf)
 
 [35 - Kara meets Avery's new form](https://htmlpreview.github.io/?https://github.com/AstralShard/masksInterludes/blob/main/InterludeFiles/35%20-%20Kara%20meets%20Avery's%20new%20form.html)
 
