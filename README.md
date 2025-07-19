@@ -83,6 +83,6 @@
 
 [40 - Kara attempts to threaten Clarke](https://htmlpreview.github.io/?https://github.com/AstralShard/masksInterludes/blob/main/InterludeFiles/40%20-%20Kara%20attempts%20to%20threaten%20Clarke.html)
 
-[41 - Will tries to understand Hope after the party (ONGOING)](https://htmlpreview.github.io/?https://github.com/AstralShard/masksInterludes/blob/main/InterludeFiles/41%20-%20Will%20tries%20to%20understand%20Hope%20after%20the%20party%20%5BONGOING%5D.html)
+[41 - Will tries to understand Hope after the party](https://htmlpreview.github.io/?https://github.com/AstralShard/masksInterludes/blob/main/InterludeFiles/41%20-%20Will%20tries%20to%20understand%20Hope%20after%20the%20party.html)
 
 [42 - Kara tells Avery about Julia (ONGOING)](https://htmlpreview.github.io/?https://github.com/AstralShard/masksInterludes/blob/main/InterludeFiles/42%20-%20Kara%20tells%20Avery%20about%20Julia%20%5BONGOING%5D.html)
