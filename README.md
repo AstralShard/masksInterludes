@@ -88,3 +88,7 @@
 [42 - Kara tells Avery about Julia (ONGOING)](https://htmlpreview.github.io/?https://github.com/AstralShard/masksInterludes/blob/main/InterludeFiles/42%20-%20Kara%20tells%20Avery%20about%20Julia%20%5BONGOING%5D.html)
 
 [43 - Will and Kara argue (once again) after the party](https://htmlpreview.github.io/?https://github.com/AstralShard/masksInterludes/blob/main/InterludeFiles/43%20-%20Will%20and%20Kara%20argue%20(once%20again)%20after%20the%20party.html)
+
+[44 - 44 - Will talks to Olivia again](https://htmlpreview.github.io/?https://github.com/AstralShard/masksInterludes/blob/main/InterludeFiles/44%20-%20Will%20talks%20to%20Olivia%20again.html)
+
+[45 - Will speaks with Howl](https://htmlpreview.github.io/?https://github.com/AstralShard/masksInterludes/blob/main/InterludeFiles/45%20-%20Will%20speaks%20with%20Howl.html)
