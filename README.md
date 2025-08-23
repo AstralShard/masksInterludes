@@ -92,3 +92,5 @@
 [44 - Will talks to Olivia again](https://htmlpreview.github.io/?https://github.com/AstralShard/masksInterludes/blob/main/InterludeFiles/44%20-%20Will%20talks%20to%20Olivia%20again.html)
 
 [45 - Will speaks with Howl](https://htmlpreview.github.io/?https://github.com/AstralShard/masksInterludes/blob/main/InterludeFiles/45%20-%20Will%20speaks%20with%20Howl.html)
+
+[46 - Will explores Kara's mindscape](https://htmlpreview.github.io/?https://github.com/AstralShard/masksInterludes/blob/main/InterludeFiles/46%20-%20Will%20explores%20Kara's%20mindscape.html)
