@@ -95,7 +95,7 @@
 
 [46 - Will explores Kara's mindscape](https://htmlpreview.github.io/?https://github.com/AstralShard/masksInterludes/blob/main/InterludeFiles/46%20-%20Will%20explores%20Kara's%20mindscape.html)
 
-[47 - Kara needs (and gets) therapy](https://htmlpreview.github.io/?https://github.com/AstralShard/masksInterludes/tree/main/InterludeFiles#:~:text=47%20%2D%20Kara%20needs%20(and%20gets)%20therapy.html)
+[47 - Kara needs (and gets) therapy](https://htmlpreview.github.io/?https://github.com/AstralShard/masksInterludes/blob/main/InterludeFiles/47%20-%20Kara%20needs%20(and%20gets)%20therapy.html)
 
 [48 - Will and Hope plan a beach episode](https://htmlpreview.github.io/?https://github.com/AstralShard/masksInterludes/blob/main/InterludeFiles/48%20Will%20and%20Hope%20plan%20a%20beach%20episode.html)
 
