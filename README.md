@@ -100,3 +100,8 @@
 [48 - Will and Hope plan a beach episode](https://htmlpreview.github.io/?https://github.com/AstralShard/masksInterludes/blob/main/InterludeFiles/48%20Will%20and%20Hope%20plan%20a%20beach%20episode.html)
 
 [49 - A Witch and his Familiar](https://htmlpreview.github.io/?https://github.com/AstralShard/masksInterludes/blob/main/InterludeFiles/49%20-%20A%20Witch%20and%20his%20Familiar.html)
+
+[50a - Will fails Annalise](https://htmlpreview.github.io/?https://github.com/AstralShard/masksInterludes/blob/main/InterludeFiles/50a%20-%20Will%20fails%20Annalise.html)
+[50b - Will fails Annalise (Now on Hamstergram)](https://htmlpreview.github.io/?https://github.com/AstralShard/masksInterludes/blob/main/InterludeFiles/50b%20-%20Will%20fails%20Annalise%20(Now%20on%20Hamstergram).html)
+
+[51 - Villanous Cutscene](https://htmlpreview.github.io/?https://github.com/AstralShard/masksInterludes/blob/main/InterludeFiles/51%20-%20Villanous%20Cutscene.html)
