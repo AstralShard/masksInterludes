@@ -105,3 +105,13 @@
 [50b - Will fails Annalise (Now on Hamstergram)](https://htmlpreview.github.io/?https://github.com/AstralShard/masksInterludes/blob/main/InterludeFiles/50b%20-%20Will%20fails%20Annalise%20(Now%20on%20Hamstergram).html)
 
 [51 - Villanous Cutscene](https://htmlpreview.github.io/?https://github.com/AstralShard/masksInterludes/blob/main/InterludeFiles/51%20-%20Villanous%20Cutscene.html)
+
+[52 - Kara Will and Avery chat after Avery had an intimate meeting with the wall](https://htmlpreview.github.io/?https://github.com/AstralShard/masksInterludes/blob/main/InterludeFiles/52%20-%20Kara%20Will%20and%20Avery%20chat%20after%20Avery%20had%20an%20intimate%20meeting%20with%20the%20wall.html)
+
+[53 - Kara and HHH chat](https://htmlpreview.github.io/?https://github.com/AstralShard/masksInterludes/blob/main/InterludeFiles/53%20-%20Kara%20and%20HHH%20chat.html)
+
+[54 - Get me an interview with Spellwright!](https://htmlpreview.github.io/?https://github.com/AstralShard/masksInterludes/blob/main/InterludeFiles/54%20-%20Get%20me%20an%20interview%20with%20Spellwright!.html)
+
+ONGOING:
+- Hope and Will stuff
+- Thea meeting Avery
