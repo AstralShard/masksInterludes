@@ -112,6 +112,16 @@
 
 [54 - Get me an interview with Spellwright!](https://htmlpreview.github.io/?https://github.com/AstralShard/masksInterludes/blob/main/InterludeFiles/54%20-%20Get%20me%20an%20interview%20with%20Spellwright!.html)
 
-ONGOING:
-- Hope and Will stuff
-- Thea meeting Avery
+[55 - Hope and Will sleepover and catchup](https://htmlpreview.github.io/?https://github.com/AstralShard/masksInterludes/blob/main/InterludeFiles/55%20-%20Hope%20and%20Will%20sleepover%20and%20catchup.html)
+
+[56 - Will spends too much time on hamstergram (ft Kara)](https://htmlpreview.github.io/?https://github.com/AstralShard/masksInterludes/blob/main/InterludeFiles/56%20-%20Will%20spends%20too%20much%20time%20on%20hamstergram%20(ft%20Kara).html)
+
+[57a - Avery and Thea have a not date](https://htmlpreview.github.io/?https://github.com/AstralShard/masksInterludes/blob/main/InterludeFiles/57a%20-%20Avery%20and%20Thea%20have%20a%20not%20date.html)
+57b - Avery and Thea have a not date
+
+[58a - Will visits Hopes home](https://htmlpreview.github.io/?https://github.com/AstralShard/masksInterludes/blob/main/InterludeFiles/58a%20-%20Will%20visits%20Hopes%20home.html)
+[58b - Will visits Hopes home](https://htmlpreview.github.io/?https://github.com/AstralShard/masksInterludes/blob/main/InterludeFiles/58b%20-%20Will%20visits%20Hopes%20home.html)
+
+[59 - A walk on the beach, a kiss beneath the stars](https://htmlpreview.github.io/?https://github.com/AstralShard/masksInterludes/blob/main/InterludeFiles/59%20-%20A%20walk%20on%20the%20beach%2C%20a%20kiss%20beneath%20the%20stars.html)
+
+[60 - Avery apologises to Thea](https://htmlpreview.github.io/?https://github.com/AstralShard/masksInterludes/blob/main/InterludeFiles/60%20-%20Avery%20apologises%20to%20Thea.html)
