@@ -117,7 +117,7 @@
 [56 - Will spends too much time on hamstergram (ft Kara)](https://htmlpreview.github.io/?https://github.com/AstralShard/masksInterludes/blob/main/InterludeFiles/56%20-%20Will%20spends%20too%20much%20time%20on%20hamstergram%20(ft%20Kara).html)
 
 [57a - Avery and Thea have a not date](https://htmlpreview.github.io/?https://github.com/AstralShard/masksInterludes/blob/main/InterludeFiles/57a%20-%20Avery%20and%20Thea%20have%20a%20not%20date.html)
-57b - Avery and Thea have a not date
+[57b - Avery and Thea have a not date](https://htmlpreview.github.io/?https://github.com/AstralShard/masksInterludes/blob/main/InterludeFiles/57b%20-%20Thea%20and%20Avery%20have%20a%20(non)%20date.html)
 
 [58a - Will visits Hopes home](https://htmlpreview.github.io/?https://github.com/AstralShard/masksInterludes/blob/main/InterludeFiles/58a%20-%20Will%20visits%20Hopes%20home.html)
 [58b - Will visits Hopes home](https://htmlpreview.github.io/?https://github.com/AstralShard/masksInterludes/blob/main/InterludeFiles/58b%20-%20Will%20visits%20Hopes%20home.html)
@@ -125,3 +125,27 @@
 [59 - A walk on the beach, a kiss beneath the stars](https://htmlpreview.github.io/?https://github.com/AstralShard/masksInterludes/blob/main/InterludeFiles/59%20-%20A%20walk%20on%20the%20beach%2C%20a%20kiss%20beneath%20the%20stars.html)
 
 [60 - Avery apologises to Thea](https://htmlpreview.github.io/?https://github.com/AstralShard/masksInterludes/blob/main/InterludeFiles/60%20-%20Avery%20apologises%20to%20Thea.html)
+
+[61 - The death of a ship](https://htmlpreview.github.io/?https://github.com/AstralShard/masksInterludes/blob/main/InterludeFiles/61%20-%20The%20death%20of%20a%20ship.html)
+
+[62 - Kara gets advice from Armourer and threatens Clarke](https://htmlpreview.github.io/?https://github.com/AstralShard/masksInterludes/blob/main/InterludeFiles/62%20-%20Kara%20gets%20advice%20from%20Armourer%20and%20threatens%20Clarke.html)
+
+63 - Kara and Will visit AnnaMum and call Annalise
+
+[64 - Thea meets her school buddy, Erin](https://htmlpreview.github.io/?https://github.com/AstralShard/masksInterludes/blob/main/InterludeFiles/64%20-%20Thea%20meets%20her%20school%20buddy%2C%20Erin.html)
+
+65 - Will goes to visit Bethany
+
+[66 - Will delivers therapy and nightmares to Clarke](https://htmlpreview.github.io/?https://github.com/AstralShard/masksInterludes/blob/main/InterludeFiles/66%20-%20Will%20delivers%20therapy%20and%20nightmares%20to%20Clarke.html)
+
+[67 - Will and pauline record another video](https://htmlpreview.github.io/?https://github.com/AstralShard/masksInterludes/blob/main/InterludeFiles/67%20-%20Will%20and%20pauline%20record%20another%20video.html)
+
+68 - Hope and Magnus practice fencing
+
+[69 - Thea opens up to Zane](https://htmlpreview.github.io/?https://github.com/AstralShard/masksInterludes/blob/main/InterludeFiles/69%20-%20Thea%20opens%20up%20to%20Zane.html)
+
+[70 - (Unofficial) Kara and Pass chat](https://htmlpreview.github.io/?https://github.com/AstralShard/masksInterludes/blob/main/InterludeFiles/70%20-%20%5BUnofficial%5D%20Kara%20and%20Pass%20chat.html)
+
+71 - Will takes Hope to see a show
+
+72 - Thea and Avery chat the morning afterwards  
