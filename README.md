@@ -130,22 +130,28 @@
 
 [62 - Kara gets advice from Armourer and threatens Clarke](https://htmlpreview.github.io/?https://github.com/AstralShard/masksInterludes/blob/main/InterludeFiles/62%20-%20Kara%20gets%20advice%20from%20Armourer%20and%20threatens%20Clarke.html)
 
-63 - Kara and Will visit AnnaMum and call Annalise
+[63 - Kara and Will visit AnnaMum and call Annalise](https://htmlpreview.github.io/?https://github.com/AstralShard/masksInterludes/blob/main/InterludeFiles/63%20-%20Hospitals%20and%20Cages%20(ft%20Kara%2C%20Will%2C%20Annalise%2C%20AnnaMum).html)
 
 [64 - Thea meets her school buddy, Erin](https://htmlpreview.github.io/?https://github.com/AstralShard/masksInterludes/blob/main/InterludeFiles/64%20-%20Thea%20meets%20her%20school%20buddy%2C%20Erin.html)
 
-65 - Will goes to visit Bethany
+[65 - Will goes to visit Bethany](https://htmlpreview.github.io/?https://github.com/AstralShard/masksInterludes/blob/main/InterludeFiles/65%20-%20Will%20visits%20Bethany.html)
 
 [66 - Will delivers therapy and nightmares to Clarke](https://htmlpreview.github.io/?https://github.com/AstralShard/masksInterludes/blob/main/InterludeFiles/66%20-%20Will%20delivers%20therapy%20and%20nightmares%20to%20Clarke.html)
 
 [67 - Will and pauline record another video](https://htmlpreview.github.io/?https://github.com/AstralShard/masksInterludes/blob/main/InterludeFiles/67%20-%20Will%20and%20pauline%20record%20another%20video.html)
 
-68 - Hope and Magnus practice fencing
+[68 - Hope and Magnus practice fencing](https://htmlpreview.github.io/?https://github.com/AstralShard/masksInterludes/blob/main/InterludeFiles/68%20-%20Will%20and%20Hope%20practice%20Fencing.html)
 
 [69 - Thea opens up to Zane](https://htmlpreview.github.io/?https://github.com/AstralShard/masksInterludes/blob/main/InterludeFiles/69%20-%20Thea%20opens%20up%20to%20Zane.html)
 
 [70 - (Unofficial) Kara and Pass chat](https://htmlpreview.github.io/?https://github.com/AstralShard/masksInterludes/blob/main/InterludeFiles/70%20-%20%5BUnofficial%5D%20Kara%20and%20Pass%20chat.html)
 
-71 - Will takes Hope to see a show
+[71 - Will takes Hope to see a show](https://htmlpreview.github.io/?https://github.com/AstralShard/masksInterludes/blob/main/InterludeFiles/71%20-%20Will%20takes%20Hope%20to%20see%20a%20show.html)
 
-72 - Thea and Avery chat the morning afterwards  
+[72 - Thea and Avery chat the morning afterwards](https://htmlpreview.github.io/?https://github.com/AstralShard/masksInterludes/blob/main/InterludeFiles/72%20-%20Thea%20and%20Avery%20chat%20the%20morning%20afterwards.html)
+
+73 - Rollar Skating Drama (ft Will, Hope, Thea, and the Heathers)
+
+[74 - Another grave visit (ft Will)](https://htmlpreview.github.io/?https://github.com/AstralShard/masksInterludes/blob/main/InterludeFiles/74%20-%20Another%20grave%20visit%20%5Bft%20Will%5D.html)
+
+[75 - Anime fight! (Ft Thea, Kara)](https://htmlpreview.github.io/?https://github.com/AstralShard/masksInterludes/blob/main/InterludeFiles/75%20-%20Anime%20fight!%20%5BFt%20Thea%2C%20Kara%5D.html)
