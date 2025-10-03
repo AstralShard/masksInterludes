@@ -165,6 +165,6 @@
 
 79 - Kara recruits the rest of the team for the Heist
 
-[80 Avery in the Nowhere](https://htmlpreview.github.io/?https://github.com/AstralShard/masksInterludes/blob/main/InterludeFiles/80%20-%20Avery%20in%20the%20Nowhere.html)
+[80 - Avery in the Nowhere](https://htmlpreview.github.io/?https://github.com/AstralShard/masksInterludes/blob/main/InterludeFiles/80%20-%20Avery%20in%20the%20Nowhere.html)
 
 81 - Avery gets back in the game (ft: Thea)
