@@ -85,7 +85,7 @@
 
 [41 - Will tries to understand Hope after the party](https://htmlpreview.github.io/?https://github.com/AstralShard/masksInterludes/blob/main/InterludeFiles/41%20-%20Will%20tries%20to%20understand%20Hope%20after%20the%20party.html)
 
-[42 - Kara tells Avery about Julia (ONGOING)](https://htmlpreview.github.io/?https://github.com/AstralShard/masksInterludes/blob/main/InterludeFiles/42%20-%20Kara%20tells%20Avery%20about%20Julia%20%5BONGOING%5D.html)
+[42 - Kara tells Avery about Julia (ONGOING)](https://htmlpreview.github.io/?https://github.com/AstralShard/masksInterludes/blob/main/InterludeFiles/42%20-%20Kara%20tells%20Avery%20about%20Julia.html)
 
 [43 - Will and Kara argue (once again) after the party](https://htmlpreview.github.io/?https://github.com/AstralShard/masksInterludes/blob/main/InterludeFiles/43%20-%20Will%20and%20Kara%20argue%20(once%20again)%20after%20the%20party.html)
 
@@ -150,8 +150,21 @@
 
 [72 - Thea and Avery chat the morning afterwards](https://htmlpreview.github.io/?https://github.com/AstralShard/masksInterludes/blob/main/InterludeFiles/72%20-%20Thea%20and%20Avery%20chat%20the%20morning%20afterwards.html)
 
-73 - Rollar Skating Drama (ft Will, Hope, Thea, and the Heathers)
+[73a - Rollar Skating Drama (ft Will, Hope, Thea, and the Heathers)](https://htmlpreview.github.io/?https://github.com/AstralShard/masksInterludes/blob/main/InterludeFiles/73a%20-Roller%20skating%20drama%20%5Bft%20Will%2C%20Thea%2C%20Hope%2C%20and%20the%20Heathers%5D.html)
+[73b - Rollar Skating Drama (ft Will, Hope, Thea, and the Heathers)](https://htmlpreview.github.io/?https://github.com/AstralShard/masksInterludes/blob/main/InterludeFiles/73b%20-Roller%20skating%20drama%20%5Bft%20Will%2C%20Thea%2C%20Hope%2C%20and%20the%20Heathers%5D.html)
 
 [74 - Another grave visit (ft Will)](https://htmlpreview.github.io/?https://github.com/AstralShard/masksInterludes/blob/main/InterludeFiles/74%20-%20Another%20grave%20visit%20%5Bft%20Will%5D.html)
 
 [75 - Anime fight! (Ft Thea, Kara)](https://htmlpreview.github.io/?https://github.com/AstralShard/masksInterludes/blob/main/InterludeFiles/75%20-%20Anime%20fight!%20%5BFt%20Thea%2C%20Kara%5D.html)
+
+76 - Magnus reveals his powers to his Mum
+
+77 - Kara and Will break and enter MM's lair
+
+[78 - Kara recruits Thea for the heist](https://htmlpreview.github.io/?https://github.com/AstralShard/masksInterludes/blob/main/InterludeFiles/78%20-%20Kara%20recruits%20Thea%20for%20the%20heist.html)
+
+79 - Kara recruits the rest of the team for the Heist
+
+[80 Avery in the Nowhere](https://htmlpreview.github.io/?https://github.com/AstralShard/masksInterludes/blob/main/InterludeFiles/80%20-%20Avery%20in%20the%20Nowhere.html)
+
+81 - Avery gets back in the game (ft: Thea)
