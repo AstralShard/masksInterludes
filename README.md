@@ -159,12 +159,25 @@
 
 76 - Magnus reveals his powers to his Mum
 
-77 - Kara and Will break and enter MM's lair
+[77 - Kara and Will explore the pet shop](https://htmlpreview.github.io/?https://github.com/AstralShard/masksInterludes/blob/main/InterludeFiles/77%20-%20Kara%20and%20Will%20explore%20the%20pet%20shop.html)
 
 [78 - Kara recruits Thea for the heist](https://htmlpreview.github.io/?https://github.com/AstralShard/masksInterludes/blob/main/InterludeFiles/78%20-%20Kara%20recruits%20Thea%20for%20the%20heist.html)
 
-79 - Kara recruits the rest of the team for the Heist
+[79 - Kara recruits the rest of the team for the Heist](https://htmlpreview.github.io/?https://github.com/AstralShard/masksInterludes/blob/main/InterludeFiles/79%20-%20Kara%20recruits%20the%20rest%20of%20the%20team%20for%20a%20heist.html)
 
 [80 - Avery in the Nowhere](https://htmlpreview.github.io/?https://github.com/AstralShard/masksInterludes/blob/main/InterludeFiles/80%20-%20Avery%20in%20the%20Nowhere.html)
 
-81 - Avery gets back in the game (ft: Thea)
+[81 - Avery gets back in the game (ft: Thea)](https://htmlpreview.github.io/?https://github.com/AstralShard/masksInterludes/blob/main/InterludeFiles/81%20-%20Avery%20gets%20back%20in%20the%20game%20(ft%20Magnus%2C%20Thea).html)
+
+82 - Will chats with Evie [ONGOING]
+
+83 - Kara calls an old friend [Ongoing]
+
+[84 - Kara breaks up a fight (ft Will, Thea, the goldfish school)](https://htmlpreview.github.io/?https://github.com/AstralShard/masksInterludes/blob/main/InterludeFiles/84%20-%20Kara%20Breaks%20up%20a%20fight%20(ft%20Thea%2C%20Will%2C%20and%20the%20goldfish%20school).html)
+
+85- Lodestone maybe 🥺 [ONGOING]
+
+86 - AnEldrt1chUnicorn returns! (A.K.A.: Who needs math anyways?) [ONGOING]
+
+
+
