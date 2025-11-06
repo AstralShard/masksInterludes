@@ -157,7 +157,7 @@
 
 [75 - Anime fight! (Ft Thea, Kara)](https://htmlpreview.github.io/?https://github.com/AstralShard/masksInterludes/blob/main/InterludeFiles/75%20-%20Anime%20fight!%20%5BFt%20Thea%2C%20Kara%5D.html)
 
-76 - Magnus reveals his powers to his Mum
+[76 - Grounded! (ft MagMum, Magnus)](https://htmlpreview.github.io/?https://github.com/AstralShard/masksInterludes/blob/main/InterludeFiles/76%20-%20Grounded!%20(ft%20MagMum%2C%20Magnus).html)
 
 [77 - Kara and Will explore the pet shop](https://htmlpreview.github.io/?https://github.com/AstralShard/masksInterludes/blob/main/InterludeFiles/77%20-%20Kara%20and%20Will%20explore%20the%20pet%20shop.html)
 
@@ -169,15 +169,26 @@
 
 [81 - Avery gets back in the game (ft: Thea)](https://htmlpreview.github.io/?https://github.com/AstralShard/masksInterludes/blob/main/InterludeFiles/81%20-%20Avery%20gets%20back%20in%20the%20game%20(ft%20Magnus%2C%20Thea).html)
 
-82 - Will chats with Evie [ONGOING]
+[82 - Therapy left on read (ft Will, Evie)](https://htmlpreview.github.io/?https://github.com/AstralShard/masksInterludes/blob/main/InterludeFiles/82%20-%20Therapy%20left%20on%20read%20(ft%20Will%2C%20Evie).html)
 
-83 - Kara calls an old friend [Ongoing]
+[83 - Kara calls an old friend (ft MM)](https://htmlpreview.github.io/?https://github.com/AstralShard/masksInterludes/blob/main/InterludeFiles/83%20-%20Kara%20calls%20an%20old%20friend%20(ft%20MM).html)
 
 [84 - Kara breaks up a fight (ft Will, Thea, the goldfish school)](https://htmlpreview.github.io/?https://github.com/AstralShard/masksInterludes/blob/main/InterludeFiles/84%20-%20Kara%20Breaks%20up%20a%20fight%20(ft%20Thea%2C%20Will%2C%20and%20the%20goldfish%20school).html)
 
-85- Lodestone maybe 🥺 [ONGOING]
+[85 - A brief moment of Lodestone](https://htmlpreview.github.io/?https://github.com/AstralShard/masksInterludes/blob/main/InterludeFiles/85%20-%20A%20brief%20moment%20of%20quiet%20Lodestone.html)
 
 86 - AnEldrt1chUnicorn returns! (A.K.A.: Who needs math anyways?) [ONGOING]
+
+87 - Sleepover? [ONGOING]
+
+[88 - A well deserved hug (ft Will, Kara)](https://htmlpreview.github.io/?https://github.com/AstralShard/masksInterludes/blob/main/InterludeFiles/88%20-%20A%20well%20deserved%20hug%20(ft%20Will%2C%20Kara).html)
+
+[89 - First Dinner and First Snow (ft Will, Hope, HopeDad)](https://htmlpreview.github.io/?https://github.com/AstralShard/masksInterludes/blob/main/InterludeFiles/89%20-%20First%20Dinner%20and%20First%20Snow%20(ft%20Will%2C%20Hope%2C%20HopeDad).html)
+
+90 - Will rescues Hope [ONGOING]
+
+[91 Thea is bored (ft Kara)](https://htmlpreview.github.io/?https://github.com/AstralShard/masksInterludes/blob/main/InterludeFiles/91%20Thea%20is%20bored%20(ft%20Kara).html)
+
 
 
 
