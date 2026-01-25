@@ -179,16 +179,62 @@
 
 86 - AnEldrt1chUnicorn returns! (A.K.A.: Who needs math anyways?) [ONGOING]
 
-87 - Sleepover? [ONGOING]
+[87 - Sleepover (Unfinished) (ft Avery, Thea, Kara](https://htmlpreview.github.io/?https://github.com/AstralShard/masksInterludes/blob/main/InterludeFiles/87%20-%20Sleepover!%20(Unfinished)%20(ft%20Kara%2C%20Thea%2C%20Avery).html)
 
 [88 - A well deserved hug (ft Will, Kara)](https://htmlpreview.github.io/?https://github.com/AstralShard/masksInterludes/blob/main/InterludeFiles/88%20-%20A%20well%20deserved%20hug%20(ft%20Will%2C%20Kara).html)
 
 [89 - First Dinner and First Snow (ft Will, Hope, HopeDad)](https://htmlpreview.github.io/?https://github.com/AstralShard/masksInterludes/blob/main/InterludeFiles/89%20-%20First%20Dinner%20and%20First%20Snow%20(ft%20Will%2C%20Hope%2C%20HopeDad).html)
 
-90 - Will rescues Hope [ONGOING]
+90 - /shrug idk
 
 [91 Thea is bored (ft Kara)](https://htmlpreview.github.io/?https://github.com/AstralShard/masksInterludes/blob/main/InterludeFiles/91%20Thea%20is%20bored%20(ft%20Kara).html)
 
+[92 - Thea breaks up with a bitch (ft. Erin)](https://htmlpreview.github.io/?https://github.com/AstralShard/masksInterludes/blob/main/InterludeFiles/92%20-%20Thea%20breaks%20up%20with%20a%20bitch%20(ft.%20Erin).html)
 
+[93 - Hope and Nightmares (ft Willl, Hope)](https://htmlpreview.github.io/?https://github.com/AstralShard/masksInterludes/blob/main/InterludeFiles/93%20-%20Hope%20and%20Nightmares%20(ft%20Willl%2C%20Hope).html)
 
+[94 - A shot in the dark (ft Zane, Will)](https://htmlpreview.github.io/?https://github.com/AstralShard/masksInterludes/blob/main/InterludeFiles/94%20-%20A%20shot%20in%20the%20dark%20(ft%20Zane%2C%20Will).html)
 
+95 Waiting for news (ft Will, Zane?)
+
+[96 - Missing Memories and Forgotten Friends (ft Will, Avery)](https://htmlpreview.github.io/?https://github.com/AstralShard/masksInterludes/blob/main/InterludeFiles/96%20-%20Missing%20Memories%20and%20Forgotten%20Friends%20(ft%20Will%2C%20Avery).html)
+
+[97 - Will confessing his crimes (Hope, WillMum)](https://htmlpreview.github.io/?https://github.com/AstralShard/masksInterludes/blob/main/InterludeFiles/97%20-%20Will%20confessing%20his%20crimes%20(Hope%2C%20WillMum).html)
+
+[98 - Late night visits and grief (ft Will, Kara, Hope)](https://htmlpreview.github.io/?https://github.com/AstralShard/masksInterludes/blob/main/InterludeFiles/98%20-%20Late%20night%20visits%20and%20grief%20(ft%20Will%2C%20Kara%2C%20Hope).html)
+
+[99 - Fighting nightmares (ft Will, Clarke)](https://htmlpreview.github.io/?https://github.com/AstralShard/masksInterludes/blob/main/InterludeFiles/99%20-%20Fighting%20nightmares%20(ft%20Will%2C%20Clarke).html)
+
+[100 - Karma, bitch (ft Kara, Annalise)](https://htmlpreview.github.io/?https://github.com/AstralShard/masksInterludes/blob/main/InterludeFiles/100%20-%20Karma%2C%20bitch%20(ft%20Kara%2C%20Annalise).html)
+
+[101 - Will attempts to rescue Hope (ft The Brothers, MasterMind)](https://htmlpreview.github.io/?https://github.com/AstralShard/masksInterludes/blob/main/InterludeFiles/101%20-%20Will%20attempts%20to%20rescue%20Hope%20(ft%20The%20Brothers%2C%20MasterMind).html)
+
+[102 - Will in the Unknown (ft Zane, the Brothers, Death)](https://htmlpreview.github.io/?https://github.com/AstralShard/masksInterludes/blob/main/InterludeFiles/102%20-%20Will%20in%20the%20Unknown%20(ft%20Zane%2C%20the%20Brothers%2C%20Death).html)
+
+[103 - Loserkin sleepover (ft Thea, Zane, Avery, Hope)](https://htmlpreview.github.io/?https://github.com/AstralShard/masksInterludes/blob/main/InterludeFiles/103%20-%20Loserkin%20sleepover%20(ft%20Thea%2C%20Zane%2C%20Avery%2C%20Hope).html)
+
+104 - Breaking the news (ft Will, Kara, Hope, WillMum)
+
+[105 - The team rescues Will from Nowhere (ft lots of peeps)](https://htmlpreview.github.io/?https://github.com/AstralShard/masksInterludes/blob/main/InterludeFiles/105%20%20-%20The%20team%20rescues%20Will%20from%20Nowhere%20(ft%20lots%20of%20peeps).html)
+
+[106 - Kara forgets a friend](https://htmlpreview.github.io/?https://github.com/AstralShard/masksInterludes/blob/main/InterludeFiles/106%20-%20Kara%20forgets%20a%20friend.html)
+
+[107 - Will reunites with Hope and WillMum](https://htmlpreview.github.io/?https://github.com/AstralShard/masksInterludes/blob/main/InterludeFiles/107%20-%20Will%20reunites%20with%20Hope%20and%20WillMum.html)
+
+[108 - Therapy is back on the menu (ft Will, Evie)](https://htmlpreview.github.io/?https://github.com/AstralShard/masksInterludes/blob/main/InterludeFiles/108%20-%20Therapy%20is%20back%20on%20the%20menu%20(ft%20Will%2C%20Evie).html)
+
+109 - Thea and Magnus
+
+[110 - Reaching out (ft Will, Kara)](https://htmlpreview.github.io/?https://github.com/AstralShard/masksInterludes/blob/main/InterludeFiles/110%20-%20Reaching%20out%20(ft%20Will%2C%20Kara).html)
+
+[111 - Kara's moment of truth](https://htmlpreview.github.io/?https://github.com/AstralShard/masksInterludes/blob/main/InterludeFiles/111%20-%20Kara's%20moment%20of%20truth.html)
+
+[112 - Magnus reads a book. That's it](https://htmlpreview.github.io/?https://github.com/AstralShard/masksInterludes/blob/main/InterludeFiles/112%20-%20Magnus%20reads%20a%20book.%20That's%20it.html)
+
+[13 - A few last words to echo forever (ft Avery, Kara)](https://htmlpreview.github.io/?https://github.com/AstralShard/masksInterludes/blob/main/InterludeFiles/113%20-%20A%20few%20last%20words%20to%20echo%20forever%20(ft%20Avery%2C%20Kara).html)
+
+[114 - Avery seeks out Will (ft WillMum)](https://htmlpreview.github.io/?https://github.com/AstralShard/masksInterludes/blob/main/InterludeFiles/114%20-%20Avery%20seeks%20out%20Will%20(ft%20WillMum).html)
+
+115 - Magnus and Alana flirting
+
+[116 - Goodbye Avery (ft Ms Donna)](https://htmlpreview.github.io/?https://github.com/AstralShard/masksInterludes/blob/main/InterludeFiles/116%20-%20Goodbye%20Avery%20(ft%20Ms%20Donna).html)
