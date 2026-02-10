@@ -195,7 +195,7 @@
 
 [94 - A shot in the dark (ft Zane, Will)](https://htmlpreview.github.io/?https://github.com/AstralShard/masksInterludes/blob/main/InterludeFiles/94%20-%20A%20shot%20in%20the%20dark%20(ft%20Zane%2C%20Will).html)
 
-95 Waiting for news (ft Will, Zane?)
+[95 - Waiting for news (ft Will)](https://htmlpreview.github.io/?)
 
 [96 - Missing Memories and Forgotten Friends (ft Will, Avery)](https://htmlpreview.github.io/?https://github.com/AstralShard/masksInterludes/blob/main/InterludeFiles/96%20-%20Missing%20Memories%20and%20Forgotten%20Friends%20(ft%20Will%2C%20Avery).html)
 
@@ -213,7 +213,7 @@
 
 [103 - Loserkin sleepover (ft Thea, Zane, Avery, Hope)](https://htmlpreview.github.io/?https://github.com/AstralShard/masksInterludes/blob/main/InterludeFiles/103%20-%20Loserkin%20sleepover%20(ft%20Thea%2C%20Zane%2C%20Avery%2C%20Hope).html)
 
-104 - Breaking the news (ft Will, Kara, Hope, WillMum)
+[104 - Breaking the news over breakfast (ft Will, Kara, Hope, WillMum)](https://htmlpreview.github.io/?https://github.com/AstralShard/masksInterludes/blob/main/InterludeFiles/104%20-%20Breaking%20the%20news%20over%20breakfast%20(ft%20Will%2C%20Kara%2C%20Hope%2C%20WillMum).html)
 
 [105 - The team rescues Will from Nowhere (ft lots of peeps)](https://htmlpreview.github.io/?https://github.com/AstralShard/masksInterludes/blob/main/InterludeFiles/105%20%20-%20The%20team%20rescues%20Will%20from%20Nowhere%20(ft%20lots%20of%20peeps).html)
 
@@ -238,3 +238,13 @@
 115 - Magnus and Alana flirting
 
 [116 - Goodbye Avery (ft Ms Donna)](https://htmlpreview.github.io/?https://github.com/AstralShard/masksInterludes/blob/main/InterludeFiles/116%20-%20Goodbye%20Avery%20(ft%20Ms%20Donna).html)
+
+[117 - Kara dreams of flying and fathers (ft MasterMind)](https://htmlpreview.github.io/?https://github.com/AstralShard/masksInterludes/blob/main/InterludeFiles/117%20-%20Kara%20dreams%20of%20flying%20and%20fathers%20(ft%20MasterMind).html)
+
+[118 - Kara speaks to Event Horizon](https://htmlpreview.github.io/?https://github.com/AstralShard/masksInterludes/blob/main/InterludeFiles/118%20-%20Kara%20speaks%20to%20Event%20Horizon.html)
+
+[119 - William checks on Bozo (ft more guilt)](https://htmlpreview.github.io/?https://github.com/AstralShard/masksInterludes/blob/main/InterludeFiles/119%20-%20William%20checks%20on%20Bozo%20(ft%20more%20guilt).html)
+
+[120 - Will and Evie have a chat again again again](https://htmlpreview.github.io/?https://github.com/AstralShard/masksInterludes/blob/main/InterludeFiles/120%20-%20Will%20and%20Evie%20have%20a%20chat%20again%20again%20again.html)
+
+121 - Kara and Thea ??
